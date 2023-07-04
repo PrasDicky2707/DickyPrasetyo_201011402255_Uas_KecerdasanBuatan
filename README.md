@@ -1,0 +1,2 @@
+# DickyPrasetyo_201011402255_Uas_KecerdasanBuatan
+UAS KECERDASAN BUATAN
